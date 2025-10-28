@@ -5,5 +5,5 @@
 - 💞️ I’m looking to collaborate on open source remote jobs ,Web and software development...
 - 📫 You can reach me via my mail
 - 📩shreyachaurasia623@gmail.com
-.
+- https://www.linkedin.com/in/ shreya-chaurasia-ln
 
